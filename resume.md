@@ -4,9 +4,9 @@ Marsa Muhamad Daffa
 Mahasiswa Ilmu Komputer IPB
  
 
-_Jl Batu Bara 3 No.3 Buah Batu, Bandung_<br>
-_+62 857-7884-4193_<br>
-_mmdaffa@gmail.com_
+*Jl Batu Bara 3 No.3 Buah Batu, Bandung*<br>
+*+62 857-7884-4193*<br>
+*mmdaffa@gmail.com*
 
  
 Pendidikan
